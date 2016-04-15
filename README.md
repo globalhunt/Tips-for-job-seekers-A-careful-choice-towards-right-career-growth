@@ -5,7 +5,7 @@
  
  Contact Details: Mentioning the contact details that are valid and clear is very important. It is better to put it up in the front for a quick visibility. Also make sure that the contact details that you provide and valid and active. Email ids and phone numbers should be checked regularly for any job offer.
  
- Identify your industry: If you have created a profile in a job agency or portal, then make sure you mark the industry and other preferences correctly. Keep your profile updated for companies to notice. The job agencies from time to time provide updates on the open opportunities via email, be sure to keep a close eye on these notifications and apply accordingly.
+ Identify your industry: If you have created a profile in a <a href="http://www.globalhunt.in/job-seekers.html">job agency</a> or portal, then make sure you mark the industry and other preferences correctly. Keep your profile updated for companies to notice. The job agencies from time to time provide updates on the open opportunities via email, be sure to keep a close eye on these notifications and apply accordingly.
  
  Look for established agencies: Sometimes job agencies provide you with employment opportunity information and other related services which are chargeable. There is certain job agencies which provide quality services in exchange of money but you might end up with certain fake ones too. Before you make any payments, make sure that you double check on the originality of the services and the agency. 
  
